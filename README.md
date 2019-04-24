@@ -1,0 +1,2 @@
+# gusjangsohot69
+หาตัง
